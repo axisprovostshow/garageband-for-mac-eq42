@@ -1,4 +1,4 @@
-# 
+# Enhance GarageBand for macOS with ultimate GarageBand for macOS Tool | lens-flare + shortcut-customization, the #1 tool. Includes lens-flare and shortcut-customization for a
 
 
 
